@@ -1,3 +1,4 @@
 Litwo! Ojczyzno moja!
 ty jesteś jak zdrowie;
-hehudhude
+ile cię trzeba cenić,
+ten
